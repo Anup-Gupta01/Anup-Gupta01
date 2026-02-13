@@ -6,8 +6,6 @@
 🚀 Passionate about building real-world EdTech & AI-powered applications.
 
 📧 anupg9643@gmail.com  
-🔗 GitHub: https://github.com/Anup-Gupta  
-🔗 LinkedIn: https://linkedin.com/in/anupg02  
 
 ---
 
